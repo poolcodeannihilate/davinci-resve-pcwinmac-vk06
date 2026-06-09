@@ -1,4 +1,4 @@
-# 
+# VIP DaVinci Resolve filtros para Mac OS | Exclusivo DaVinci Resolve filtros para PC Windows. Com visualização em tempo real e corte de áudio — otimizado para máximo desempenho em cada plataforma.
 
 
 
